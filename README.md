@@ -1,4 +1,4 @@
-# JOIN TELEGRAM FOR DOWNLOAD: [Join Telegram Here](https://t.me/kyaniteleaks) 🚀🔗
+# JOIN TELEGRAM FOR DOWNLOAD: [Join Telegram Here](https://t.me/kyaniteleaks)
 
 # Sorillus 6.1 Cracked 🔥
 
